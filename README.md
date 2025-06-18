@@ -1,2 +1,0 @@
-# Proyect-DIpl
-Proyect
